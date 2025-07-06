@@ -1,2 +1,2 @@
 # taruhancerdas.github.com
-https://github.com/https://github.com/taruhancerdas
+https://github.com/taruhancerdas
